@@ -1,1 +1,1 @@
-# IEEEXtreme15-GoodKid
+# IEEEXtreme15 - Team GoodKid
